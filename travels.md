@@ -1,0 +1,1 @@
+This is not a single vacation or travel experience, but my favorite place to go is the town of Fayetteville, West Virginia. I am there virtually every weekend to see friends and experience the world-class climbing in the New River Gorge.
